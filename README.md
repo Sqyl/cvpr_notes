@@ -64,7 +64,7 @@
 
 ps：港中文和华为教你如何用AI干坏事，比如做川普的裸图
 
-![](C:\Users\Administrator.DESKTOP-L5TOP6F\Pictures\2024-04-20-10-28-22-image.png)
+![](.\\trump.png)
 
 
 
